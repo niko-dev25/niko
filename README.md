@@ -38,22 +38,20 @@ Motivated and responsible student with a keen interest in technology, design, an
 - English Language Arts  
 - Social Studies  
 - French (Beginner)
-
-**Achievements:**  
-*Coming soon — awards, leadership roles, competitions*
-
+  
 ---
+
 
 ## 🤝 Volunteer Experience
 
 ### Event Assistant – School Sports Day 2024  
-*St Henri Secondary*  
+*Bay Primary (Cape Town)*  
 - Assisted with organizing event logistics and schedule  
 - Collaborated with teachers and students for smooth execution  
 - Ensured timely completion of assigned tasks
 
 ### Library & Classroom Assistant  
-*St Henri Secondary* (2023 – Present)  
+*St Henri Secondary* (2025 – Present)  
 - Maintained clean and organized learning spaces  
 - Helped classmates with academic activities  
 - Supported teachers with day-to-day classroom duties
